@@ -3,7 +3,7 @@
 
 De polder die we gaan bewandelen heet _Polder Oostzaan_, administratief ook wel bekend als de _Banne Oostzaan_.
 
-Omstreeks 1750 publiceerde een Fransman die er nog nooit was geweest onderstaande kaart van de polder -- een verraderlijk landschap van riet, poelen en drijvend veen dat in de middeleeuwen min of meer bewoonbaar was gemaakt door er sloten doorheen te graven. Op het kaartje staan alleen de belangrijkste sloten weergegeven en dan ook nog eens als kaarsrechte lijnen van constante dikte. Allemaal fantasie. De werkelijkheid is rommeliger.
+Omstreeks 1750 publiceerde een Fransman die er nog nooit was geweest onderstaande kaart van de polder -- een verraderlijk landschap van riet, poelen en drijvend veen dat in de middeleeuwen min of meer bewoonbaar was gemaakt door er ontwateringssloten doorheen te graven. Op het kaartje staan alleen de belangrijkste sloten weergegeven en dan ook nog eens als kaarsrechte lijnen van constante dikte. Allemaal fantasie. De werkelijkheid is rommeliger.
 
 ![](polder-oostzaan.jpg)
 
@@ -15,9 +15,9 @@ Omstreeks 1750 publiceerde een Fransman die er nog nooit was geweest onderstaand
 
 De Polder Oostzaan lag aan de noordelijke rand van de beschaafde wereld. De Graven van Holland hadden hier nog nét iets te zeggen. Ze hieven tol als je vanuit het Amstelland Het IJ over voer naar de Oostzaander Overtoom. Wat er daarna met je gebeurde, daar hadden de autoriteiten weinig zicht op.
 
-Linksonder op de kaart zien we een bootje arriveren bij de Overtoom, waar in de walvistijd (±1650) de traankokerijen stonden te stinken. Een moeilijk begaanbare weg voerde diep het veen in. Alleen als het voldoende had gevroren mocht men er met paard en wagen overheen. Men leefde door de eeuwen heen van het boerenbedrijf en turfwinning (zie het wapen van Oostzaan) maart ook van walvisvaart (zie het wapen van Zaanstad).
+Linksonder op de kaart zien we een bootje arriveren bij de Overtoom, waar in de walvistijd (±1650) de traankokerijen stonden te stinken. Een moeilijk begaanbare weg voerde diep het veen in. Alleen als het voldoende had gevroren mocht men er met paard en wagen overheen. Men leefde door de eeuwen heen van het boerenbedrijf en turfwinning (zie het wapen van Oostzaan) maar ook van walvisvaart (zie het wapen van Zaanstad).
 
-Het deel van Oostzaan dat zich nabij de dam in de Zaan bevond, werd Oostzaandam genoemd. Op de andere oever van de Zaan speelde zich iets vergelijkbaars af. Daar had je Westzaan en Westzaandam. In 1811 ging dhr. Napoleon Bonaparte over tot de stichting van Zaandam. Hij deed dat door Oostzaandam en Westzaandam samen te voegen. 
+Het deel van Oostzaan dat zich nabij de dam in de Zaan bevond, werd Oostzaandam genoemd. Op de andere oever van de Zaan speelde zich iets vergelijkbaars af. Daar had je Westzaan en Westzaandam. In 1811 ging dhr. Napoleon Bonaparte over tot de stichting van _Zaandam_. Hij deed dat door Oostzaandam en Westzaandam samen te voegen. 
 
 ![](zaanse-wapens.jpg)
 
